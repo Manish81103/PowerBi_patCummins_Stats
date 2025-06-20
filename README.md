@@ -1,5 +1,5 @@
 
-![Alt text](https://www.hindustantimes.com/ht-img/img/2023/11/20/550x309/PTI11-19-2023-001030A-0_1700470926425_1700470973255.jpg)
+![Alt text](https://i.pinimg.com/736x/2e/52/2a/2e522ae75dd1c9e77b613249a0ffe6fb.jpg)
 
  # Pat Cummins Career Analysis (2011-2025)
  # Overview
